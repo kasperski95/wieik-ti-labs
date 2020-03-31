@@ -1,0 +1,1 @@
+# WIEIK - Sztuczna Inteligencja (AI) - Laboratoria
